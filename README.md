@@ -1,7 +1,7 @@
 👋 Hi, I’m @samanthabaker
-👀 I’m interested in creating content that inspires people
-💞️ I’m looking to collaborate on projects with diverse teams so we can look at problems from every angle
-📫 Please reach out to me if our values align at samantha.lynneb@gmail.com
+
+I’m interested in creating content that inspires people. 
+I’m looking to collaborate on projects with diverse teams so we can look at problems from every angle. Please reach out to me if our values align at samantha.lynneb@gmail.com
 
 # bringbaker
 bringbaker.com
